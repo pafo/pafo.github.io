@@ -1,0 +1,3 @@
+Public domain.
+
+(Use at your own risk)
